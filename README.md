@@ -5,4 +5,8 @@
   
 
 -  Risoto de Shimeji
+-  Masala Chai Gelado
+-  Feijão Tropeiro Vegano 
+-  Paella Vegana
+-  Biscoitinhos de Banana e Aveia
 
